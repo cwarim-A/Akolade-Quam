@@ -1,1 +1,1 @@
-# Akolade-Quam2
+# Akolade-Quam
